@@ -1,1 +1,1 @@
-# utah_stronger2
+### Arquivos criados no Stronger2 - Utah
